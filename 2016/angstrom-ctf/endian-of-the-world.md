@@ -1,0 +1,1 @@
+Flag: a_doomsday_device_is_only_useful_if_everyone_knows_about_it
